@@ -2,7 +2,7 @@
 
 Game developer • She/They • Lunya on [Roblox](roblox.com) • Opinions are my own ✨🐸
  
-🌱 I'm learning more and more about games!
+🌱 I'm learning more and more about game dev!
 
 <!--
 **Phalanxia/Phalanxia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
