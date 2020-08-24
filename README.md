@@ -1,4 +1,8 @@
-### Hi there 👋
+### Heyy~!
+
+Game developer \\ She/They \\ Lunya on @Roblox \\ Opinions are my own ✨🐸
+ 
+🌱 I'm learning more and more about games!
 
 <!--
 **Phalanxia/Phalanxia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
