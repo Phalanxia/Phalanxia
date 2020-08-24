@@ -1,6 +1,6 @@
 ### Heyy~!
 
-Game developer do • She/They • Lunya on @Roblox • Opinions are my own ✨🐸
+Game developer do • She/They • Lunya on [Roblox](roblox.com) • Opinions are my own ✨🐸
  
 🌱 I'm learning more and more about games!
 
