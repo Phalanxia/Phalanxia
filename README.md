@@ -1,3 +1,5 @@
+![Banner](https://pbs.twimg.com/profile_banners/117902635/1554629405/600x200)
+
 ### Heyy~!
 
 Game developer • She/They • Lunya on [Roblox](roblox.com) • Opinions are my own ✨🐸
