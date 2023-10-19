@@ -1,22 +1,10 @@
-![Banner](https://madi.pizza/image/https%3A%2F%2Fs3-us-west-2.amazonaws.com%2Fsecure.notion-static.com%2Fe643b508-0815-412d-8267-79f4345cf4f6%2F497fc540-5647-11e9-bea8-17c0296579ac.jpg?table=block&id=a620202a-380f-4f2c-ae63-ccb22eef618f&spaceId=d603b36f-d54d-4c46-b757-5f026144c6ed&width=400&userId=&cache=v2)
-
 ### Heyy~!
 
-Game developer • She/They • Lunya on [Roblox](roblox.com) • Opinions are my own ✨🐸
+Game developer • Lunya on [Roblox](roblox.com)
  
 🌱 I'm learning more and more about game dev!
 
-<!--
-**Phalanxia/Phalanxia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🧦 Pronouns: She/Her & They/Them
+📫 How to contact me: inquiries@madi.pizza
+🕸️ [My website](https://madi.pizza)
+🔗 [My LinkedIn](https://www.linkedin.com/in/madisonsweigert/) 
