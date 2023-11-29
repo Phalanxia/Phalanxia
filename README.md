@@ -1,6 +1,6 @@
 ### Heyy~!
 
-Game developer • Lunya on [Roblox](roblox.com)
+Game developer • Lunya on [Roblox](https://roblox.com)
  
 🌱 I'm learning more and more about game dev!
 
