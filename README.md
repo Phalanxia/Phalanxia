@@ -8,6 +8,6 @@ Game developer • Lunya on [Roblox](https://roblox.com)
 
 📫 How to contact me: inquiries@madi.pizza
 
-🕸️ [My website](https://madi.pizza)
+🕸️ [My website](https://madi.pizza) (Has most of my links!)
 
 🔗 [My LinkedIn](https://www.linkedin.com/in/madisonsweigert/) 
